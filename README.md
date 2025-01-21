@@ -1,1 +1,1 @@
-Challenge amigo secreto en proceso 70%
+Challenge amigo secreto en proceso 95%
